@@ -1,1 +1,1 @@
-![hippo](https://vanillarec.net/assets/jacob.gif)
+![jacob](https://vanillarec.net/assets/jacob.gif)
